@@ -62,4 +62,4 @@ This policy is effective as of 2026-05-10
 
 ## Contact Us
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at your-email@example.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at mtayabali112233@gmail.com.
